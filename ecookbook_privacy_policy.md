@@ -36,6 +36,6 @@ We do not use cookies.
 We may amend our privacy policy from time to time by posting the amended Policy on our website, without directly informing our users. Therefore we encourage our users to review this policy frequently. eCookbook DMM reserves all rights and interpretation to the Policy and its amendments.
 
 ### 9. Contact us.
-If you have any questions or concerns regarding this Privacy Policy, please send us an email at maxsphan@gmail.com
+If you have any questions or concerns regarding this Privacy Policy, please send us an email at ecookbook.dmm@gmail.com
 
 We love hearing your voice. Let's contact us and stay connected!
